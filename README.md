@@ -6,7 +6,7 @@ Saya seorang **Mahasiswa Sistem Informasi** yang belajar di [Dicoding](https://w
 
 Saya sangat jago bermain PUBG MOBILE dan belum berkesempatan bergabung di Tim Profesional [seperti ke Persija Evos Esport](https://www.instagram.com/persija_evos/).<br>
 
-Saya juga memiliki gelar All Talent Master Championship baru-baru ini.<br>
+Saya juga memiliki gelar All Talent Master Championship baru-baru ini dan juga gelar di region Sawahlunto.<br>
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/zaki-muzhaffar-b818bb159/)ku ya.
 
