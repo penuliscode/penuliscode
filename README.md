@@ -8,7 +8,8 @@ Saya sangat jago bermain PUBG MOBILE dan belum berkesempatan bergabung di Tim Pr
 
 Saya juga memiliki gelar All Talent Master Championship baru-baru ini dan juga gelar di region Sawahlunto.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/zaki-muzhaffar-b818bb159/)ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun  [Linkedin](https://www.linkedin.com/in/zaki-muzhaffar-b818bb159/)ku ya.  
+My [Instagram](https://www.instagram.com/muzhaff_ar/)
 
 ### Github Statistic
 <p align="left">
