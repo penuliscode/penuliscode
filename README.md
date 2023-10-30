@@ -1,14 +1,15 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Gilang Ramadhan**.<br>
+Perkenalkan nama saya **Muhammad Zaki Muzhaffar**.<br>
 
-Saya seorang **Curriculum Developer** di [Dicoding](https://www.dicoding.com/).<br>
+Saya seorang **Mahasiswa Sistem Informasi** yang belajar di [Dicoding](https://www.dicoding.com/).<br>
 
-Saya bertanggung jawab pada kualitas materi iOS dengan dibekali [sertifikasi dari University of Toronto](https://www.coursera.org/account/accomplishments/specialization/CLKJD8XBXJ3M).<br>
+Saya sangat jago bermain PUBG MOBILE dan belum berkesempatan bergabung di Tim Profesional [seperti ke Persija Evos Esport](https://www.instagram.com/persija_evos/).<br>
 
-Saya juga memiliki gelar Google Associate Android Developer sejak 2019.<br>
+Saya juga memiliki gelar All Talent Master Championship baru-baru ini dan juga gelar di region Sawahlunto.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/gilang-adhan/)ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun  [Linkedin](https://www.linkedin.com/in/zaki-muzhaffar-b818bb159/)ku ya.  
+My [Instagram](https://www.instagram.com/muzhaff_ar/), [Facebook](https://www.instagram.com/muzhaff_ar/), [Twitter](https://www.instagram.com/muzhaff_ar/)
 
 ### Github Statistic
 <p align="left">
